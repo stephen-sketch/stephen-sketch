@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @stephen-sketch
-- 👀 I’m interested in history, space travel, cooking, puzzles, etymology, puzzles...
+- 👀 I’m interested in history, space travel, cooking, puzzles, etymology, puzzles, learning new ways of thinking...
 - 🌱 I’m currently learning reponsive web design
 - 💞️ I’m looking to collaborate on blueberry lemon bars :P
 - 📫 How to reach me: honiedbadger@pm.me
